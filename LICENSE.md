@@ -1,4 +1,4 @@
-#  
+#  smart Things 3 for macOS Integration | quick search + reminders offers the most advanced Things 3 for macOS integration, with quick search and reminders. Ideal for professionals.
 
 
 
